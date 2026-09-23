@@ -1,1 +1,1 @@
-I love you
+I am a PhD candidate and instructor in Economics at the University of Nevada, Reno. I hold an MSc in Economics, Finance, and Management from the University of Bristol and a BBA in Economics from the Chinese University of Hong Kong. My research focuses on development economics and behavioral economics. My work has been published in reputable journals, including the Australian Economic Papers, Asian Development Review, Tourism and Hospitality, and Chinese Studies.
